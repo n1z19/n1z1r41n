@@ -52,4 +52,4 @@ https://github.com/checkra1n - checkra1n Team
 
 - Socials
 [Discord](https://discord.gg/cU3ug5yrFz)
-[My Page](guns.lol/1nizi9)
+[My Page](https://guns.lol/1nizi9)
